@@ -1,1 +1,0 @@
-https://AnnaLapionok.github.io/rsschool-cv/cv
